@@ -16,7 +16,5 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/queenanne.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/renton.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/roofcam2ne500x281.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/scrsht29ba8c39-f557-4d8f-b5fd-b51a51a4d1df.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/scrsht75d65b41-cc6b-4185-8977-d011b88d392b.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/seatac.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/waterfront.jpg)
