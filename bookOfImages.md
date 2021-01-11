@@ -10,8 +10,6 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/89.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Alaskan_Pike_NS.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Alaskan_University_NS.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Ami0f697e1d-5d30-4bd6-a7d9-7ddb2f73ce02.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Ami1b9d15ee-7679-4349-9988-fcfe7bbb1cda.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/OlySW.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/camera1_l.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/fileslist.jpg)
