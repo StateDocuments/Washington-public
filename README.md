@@ -4,6 +4,8 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/5_Spring_EW.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Alaskan_Pike_NS.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Alaskan_University_NS.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Ami535013fb-9d83-4029-983b-eedc65f0b359.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/Amif1e74a89-128c-47b5-8bcd-702a19a62422.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/OlySW.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/camera1_l.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/queenanne.jpg)
